@@ -1,2 +1,2 @@
 # mobile_recharge-system
-Author-Ritik Chauhan
+Author-Ritik Chauhan(Hindu)
